@@ -1,2 +1,2 @@
 ### New Bay Area Book Club!
-## [Txt For Location!](https://thisstu.com/ideas/book-club)
+## Shhh! [Txt For Location!](https://thisstu.com/ideas/book-club)
